@@ -8,4 +8,4 @@ Placeholder text
 - 💞️ I’m looking to collaborate on ... yes
 - 📫 How to reach me ... don't
 
-Thank you for spending 40 seconds of your life reading my truly wonderful description of unrivaled quality. I hope you have a wonderful day.
+Thank you for spending 20 seconds of your life reading my truly wonderful description of unrivaled quality. I hope you have a wonderful day.
